@@ -1,0 +1,1 @@
+Source: http://www.bundesnetzagentur.de/DE/Sachgebiete/Telekommunikation/Unternehmen_Institutionen/Frequenzen/OeffentlicheNetze/Mobilfunknetze/Z_VergabeverfDrahtloserNetzzugang2010.html
